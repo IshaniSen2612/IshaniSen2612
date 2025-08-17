@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ishani.sen2001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Tr6VWYm2ycmulZhwlaXDs23EdAMpQYRB/view](https://drive.google.com/file/d/1Tr6VWYm2ycmulZhwlaXDs23EdAMpQYRB/view)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1Tr6VWYm2ycmulZhwlaXDs23EdAMpQYRB/view)
 
 - ⚡ Fun fact **I think I can make people laugh**
 
