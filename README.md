@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Agentic AI**
 
-- 👨‍💻 All of my projects are available at [https://www.ishanisen.dev/](https://www.ishanisen.dev/)
+- 👨‍💻 All of my projects are available at [my portfolio page](https://www.ishanisen.dev/)
 
 - 📫 How to reach me **ishani.sen2001@gmail.com**
 
